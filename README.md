@@ -1,7 +1,2 @@
 # avaliacao
-esse trabalho,deu mais 
-
-avaliacao ksksksskksk
-
-
-chora
+esse trabalho,deu trabalho
